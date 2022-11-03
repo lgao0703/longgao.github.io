@@ -1,2 +1,2 @@
-# lgao0703.github.io
+# longgao.github.io
 Long Gao's BLOG
